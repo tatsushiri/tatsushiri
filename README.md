@@ -1,0 +1,3 @@
+- 👋 Hi, im tatsu, also known as the tll guy or smth
+- i won't post here often, just some old and new things for archival purposes
+- drop a follow because im awesome !!!
