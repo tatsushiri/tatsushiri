@@ -1,3 +1,3 @@
-- 👋 Hi, im tatsu, also known as the tll guy or smth
-- i won't post here often, just some old and new things for archival purposes
-- drop a follow because im awesome !!!
+- 👋 , im tatsbruh, mediocre dev 
+- i only use this to work on private repos, lol
+- follow me cuz im awesome asf
