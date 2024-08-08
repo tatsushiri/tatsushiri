@@ -1,3 +1,2 @@
-- 👋 , im tatsbruh, mediocre dev 
-- i only use this to work on private repos, lol
-- follow me cuz im awesome asf
+- mid dev
+- follow me or suck my wiener 
